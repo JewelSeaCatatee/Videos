@@ -1,3 +1,3 @@
 # Videos
 
-Visit JewelSea Catatee's YouTube Channel <https://www.youtube.com/channel/UC0sEVjs0ytAjVWpYzX-PdTA> to check out more videos!
+Visit JewelSea Catatee's YouTube Channel to watch our short videos! <https://www.youtube.com/channel/UC0sEVjs0ytAjVWpYzX-PdTA> 
